@@ -1,6 +1,6 @@
 # Greetings, fellow Earthlings! 👽
 
-![Profile Image](profile.jpg)
+![Profile Image](profile.png)
 
 ## Intergalactic Introduction
 
