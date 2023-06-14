@@ -21,7 +21,9 @@
 ## Get in Touch Across Dimensions 🌌
 
 [📫 **Holo-Email:**](mailto:mails@abulfaris.inn) Drop me a message using advanced quantum entanglement technology - no delays, guaranteed!
+
 [💫 **Interstellar LinkedIn:**](https://linkedin.com) Connect with me on the digital wormhole of professional networking - let's explore new frontiers together!
+
 [🚀 **Intergalactic Portfolio:**](https://abulfaris.in) Blast off to my personal website and discover more extraterrestrial creations - mind the anti-gravity fields!
 
 > "It's not a bug, it's an unidentified feature from a parallel universe." - Unknown
